@@ -8,9 +8,9 @@ Aplicativo Mobile Android e IOS
  
  ![alt tag](https://i.imgur.com/wzpS5IL.png?1)
  
- ![alt tag](https://i.imgur.com/FhU2Gae.png?1)
+ ![alt tag](https://i.imgur.com/VrjGs5B.png?1)
  
- ![alt tag](https://i.imgur.com/yvDt8tK.png?1)
+ ![alt tag](https://i.imgur.com/b3D4zkN.png?1)
  
  
 
